@@ -1,1 +1,1 @@
-Humger Hub
+Humger Hub 🍔
